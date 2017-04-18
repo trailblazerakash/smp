@@ -1,3 +1,0 @@
-# smp
-
-STOCK MARKET PRE
